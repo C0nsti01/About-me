@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @C0nsti01
 - 👀 I’m interested in Robotics and OS
 - 🌱 I’m currently learning C++ and HTML in School
-- 📫 How to reach me: Discord: C0nsti#1602
+- 📫 How to reach me: Discord: C0nsti#1602 or E-Mail: cqdlucianqgmail.com
